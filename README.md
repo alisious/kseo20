@@ -1,0 +1,2 @@
+# kseo20
+Ewidencja
